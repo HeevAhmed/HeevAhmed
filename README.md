@@ -1,4 +1,4 @@
-### Hi there, I'm Hev Koko
+### Hi there, I'm Hev Kojo
 
 As a dynamic individual with a diverse skill set, I am dedicated to community service and fostering positive societal change. My passion for technology, coupled with adept problem-solving skills in computer science, align seamlessly. With inherent leadership qualities, a proven track record, and fluency in three languages, I offer a meticulously cultivated profile ready to drive achievements in any formal capacity.
 
